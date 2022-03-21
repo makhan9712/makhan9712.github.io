@@ -1,1 +1,1 @@
-# makhan9712.github.io
+# magraphics.github.io
